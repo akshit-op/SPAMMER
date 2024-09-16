@@ -1,4 +1,4 @@
-<h2 align="center"><b>OwNeR <a href="https://telegram.dog/criminaL786">『 ツᴅɪᴄͥᴛᴀᴛᴏͣʀͫ乛ᴀᴍᴀᴀɴ々』</a></b></h2>
+<h2 align="center"><b>OwNeR <a href="https://telegram.dog/criminaL786">『 Akshit Sinha </a></b></h2>
 <br>
 <p align="center">
    <a href="https://github.com/Javes786/SPAMMER"><img src="https://telegra.ph/file/f364a129e97292ddf009d.jpg" alt="JAVES SPAMMER" width=400px></a>
